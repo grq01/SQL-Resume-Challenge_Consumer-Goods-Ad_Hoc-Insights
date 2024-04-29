@@ -1,0 +1,1 @@
+# SQL-Resume-Challenge_Consumer-Goods-Ad_Hoc-Insights
